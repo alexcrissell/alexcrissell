@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @alexcrissell
+- 👀 I’m interested in ... 3d animation
+- 🌱 I’m currently learning ... 3d animation
+- 📫 How to reach me ... don't
+- 😄 Pronouns: ... he/him
+- ⚡ Fun fact: ... I love and participate in theater and musicals
